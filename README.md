@@ -20,7 +20,7 @@ DFOK-ZIDC-BODK
 LXUF-VUAI-FXKD
 
 DPLX-VIGL-VLAS 
----------------------
+
 Step 3: Run Eulen.exe and paste one key.
 ---------------------
 Step 4: Then start FiveM.
@@ -34,7 +34,7 @@ AAAA-VOCL-AAAA-PDSX
 GGGG-DVLP-GGGG-PLCD
 
 KKKK-IJFDA-KKKK-PCMS
----------------------
+
 Step 6: Now youre done.
 ---------------------
 
