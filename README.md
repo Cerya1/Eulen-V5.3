@@ -25,4 +25,4 @@ Step 6: Now youre done.
 **JOIN OUR DISCORD FOR HELP!** https://discord.gg/KafNDsMTjJ
 
 
-by Vataly & Cerya.
+by Vataly & Cerya
